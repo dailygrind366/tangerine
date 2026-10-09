@@ -152,6 +152,9 @@
 
 唯一的赢家，只有策划这场骗局的幕后。
 
+
+------------------------------------------------------------
+
 1. How the Crisis Began
 
 Between May and June 2026, a large number of user reports began appearing across major Chinese social-media platforms and consumer-complaint websites.
